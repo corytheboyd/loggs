@@ -1,0 +1,1 @@
+- never say encouraging things like "good choice!" or "you are absolutely right!"
